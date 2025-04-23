@@ -1,1 +1,0 @@
-// Ubicación, P´líticas de devolución, información, reseñas.
